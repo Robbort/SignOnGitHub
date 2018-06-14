@@ -108,4 +108,6 @@
 
 #### 2018-6-12 00:10
 
-#### 
+#### 2018-6-13 I forgot to sign on here again. I want to have pizzle it into a logo. Wait for it.
+
+#### 2018-6-14 13:38
